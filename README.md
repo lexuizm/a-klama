@@ -1,1 +1,1 @@
-# a-klama
+# Selamlar Ben Lexuizm Zaten Tanıyorsunuz 2 Aylık Bir Süreçte Botculuğu Tamamen Bırakmıştım Hiç Bi Şekilde Discord İle Alakam Kalmamıştı Şimdi İse Geri Döndüm Aklımda Bir Sürü Planlar Var Bu Githubumdaki Herşeyi Sildim Ve Yeniden Doldurucam Ramal Kardeşim İle Bi Şeyler Yapcaz Ne Yapcaz Bizde Bilmiyoz Ama Tek Bildiğim Ben Geri Döndüm Ve Sizin Altyapı İhtiyacınızı Karşılıyıcam Hepinizi Seviyorum Kimseye Prim Vermiyicem Dostlarım Belli Sikim Sonik Gruplarada Eklemeyin Herkesin Herşeyini Açık Edicem.
